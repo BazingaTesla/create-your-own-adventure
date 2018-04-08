@@ -4,3 +4,4 @@ ile hazırlanmış şifalı karışımı içtin. Rahatladın ve biraz da
 uyku çöktü üzerine ve dalıp gittin.
 
 Uyandığında bir de baktın ki, ...
+Her şey aslında bir rüyaymış.
